@@ -1,2 +1,2 @@
 # Underage-Thinking
-Underage Thinking LP
+This respository is a backup of of the Skumboyz LP "Underage Thinking" and associated singles
